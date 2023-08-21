@@ -1,6 +1,6 @@
 # Jannatul Jahan Bonny
 *Trainee Software Engineer*
-| [LinkedIn](https://www.linkedin.com/in/jannatul-jahan-bonny-3a6704154/) | [GitHub](https://github.com/Jannatul-Jahan) |
+| [LinkedIn](https://www.linkedin.com/in/jannatul-jahan-bonny-3a6704154/) | [GitHub](https://github.com/Jannatul-Jahan-Bonny) |
 
 ## Summary
 To utilize the knowledge of programming and problem solving. To pursue a highly rewarding career for a job in challenging and healthy work environment where I can utilize my skills and knowledge with full determination and dedication to achieve organizational as well as personal goals.
